@@ -1,2 +1,0 @@
-# fabriciopaivalima.github.io
-Portifólio
